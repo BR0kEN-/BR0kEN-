@@ -6,5 +6,5 @@
 
 Please consider donating to the Ukrainian government and army via official channels:
 
-- https://www.comebackalive.in.ua/donate
+- https://savelife.in.ua/donate
 - https://bank.gov.ua/en/news/all/natsionalniy-bank-vidkriv-spetsrahunok-dlya-zboru-koshtiv-na-potrebi-armiyi
